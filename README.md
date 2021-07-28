@@ -1,4 +1,4 @@
-Hi, my name is Asaf Davidovitch, and i'm a 2nd year BSc Software Engineering student at Ort Bruade College in Israel, with GPA of 82.
+Hi, my name is Asaf Davidovitch, and i'm a 2nd year BSc Software Engineering student at Ort Bruade College in Israel, with GPA of 83.88.
 
 I have high marks in the core courses of my degree.
 
